@@ -1,0 +1,1 @@
+# How-to-Delete-an-App-on-Samsung-TV-Without-Hassle
